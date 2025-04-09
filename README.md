@@ -1,9 +1,8 @@
 - 👋 Hi, I’m @Xclusivkhodes
 - 👀 I’m interested in making the world a better place with my skills
-- 🌱 I’m currently learning programming with python
 - 💞️ I’m looking to collaborate on any project which will let the world be a better place
-- 📫 How to reach me on Whatsapp:+233536592934, Instagram: Xclusiv_khoder
-- 😄 Pronouns: He
+- 📫 How to reach me on Whatsapp:+233540511001, Instagram: Xclusiv_khoder
+- 😄 Pronouns: He, his
 - ⚡ Fun fact: I am Xclusiv
 
 <!---

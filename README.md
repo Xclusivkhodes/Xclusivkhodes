@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Xclusivkhodes
+- 👋 Hi, I’m @Xclusiv
 - 👀 I’m interested in making the world a better place with my skills
 - 💞️ I’m looking to collaborate on any project which will let the world be a better place
 - 📫 How to reach me on Whatsapp:+233540511001, Instagram: Xclusiv_khoder
